@@ -1,0 +1,2 @@
+# PTS_EL_G8G_24
+PTS Genap EL 2526
